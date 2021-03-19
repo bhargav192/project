@@ -2,12 +2,8 @@
 demo project 
  
 AMISIGADDA BHARGAV
-bhargavamisigadda@gmail.com
 Y19IT002
-# guntur
-## rvrjcce
-### always happy
-#### hiii
-##### byee
-###### hehee
-####### bhargav
+bhargavamisigadda@gmail.com
+6281783514
+INFORMATION TECHNOLOGY
+ONGOLE
